@@ -4,7 +4,7 @@ I’m **Albert**, a designer trying to learn how to code.
 
 My passion is to design functional projects and create visual appealing interfaces that generate more engagement!
 
-I want to learn how to code properly so I can make my prototypes feel alive (also being able to tell the devs that this crazy design is posible hehe). Outside of the design/tech world you will see me playing League of Legends, hit the gym four times a week and enjoying a film or a series with popcorns and my fiance.
+I want to learn how to code properly so I can make my prototypes feel alive (also being able to tell the devs that this crazy design is posible hehe). Outside of the design/tech world you will see me playing League of Legends, hit the gym four times a week and enjoying a film or a series with popcorns with my fiance.
 
 #### Fun Facts:
 
